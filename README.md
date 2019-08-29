@@ -26,7 +26,7 @@ Episode 9 - From Reel to Real           [Link](https://drive.google.com/open?id=
 
 Episode 10 - Vengeful Ghost             [Link](https://drive.google.com/open?id=156FD-I0R-SmDidC0FjvEGljL3V6UvkDu)
 
-Have Fun. More episodes soon. 😄
+Have Fun. More episodes soon. HBD 😄
 
 
 # Soon flooding more episodes
