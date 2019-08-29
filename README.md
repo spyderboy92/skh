@@ -26,7 +26,7 @@ Episode 9 - From Reel to Real           [Link](https://drive.google.com/open?id=
 
 Episode 10 - Vengeful Ghost             [Link](https://drive.google.com/open?id=156FD-I0R-SmDidC0FjvEGljL3V6UvkDu)
 
-Have Fun. 😄
+Have Fun. More episodes soon. 😄
 
 
 # Suggest changes Cadet Z
