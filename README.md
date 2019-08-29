@@ -18,6 +18,3 @@ Have Fun. 😄
 
 If you have a template you want to be on this repo create a PR
 
-% include googleDrivePlayer.html id=page.1_Rp1rGYku8C_2LiH-dn1dWSaApD5rI_P %
-
-{% include googleDrivePlayer.html id=page.driveId %}
