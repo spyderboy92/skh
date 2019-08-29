@@ -1,20 +1,18 @@
 
 <img src="https://github.com/tahirdon/skh/blob/master/inc/abc.jpg?raw=true"/>
 
-# Fimbo ![GitHub stars](https://img.shields.io/github/stars/imfunniee/fimbo.svg?style=social) ![GitHub repo size](https://img.shields.io/github/repo-size/imfunniee/fimbo.svg?style=popout-square) ![GitHub](https://img.shields.io/github/license/imfunniee/fimbo.svg?style=popout-square) 
+# SSSHHHH KOI HAI !
 
-### Free to use Portfolio Templates
 
-See them in action [heere](https://drive.google.com/file/d/156FD-I0R-SmDidC0FjvEGljL3V6UvkDu/edit)
+### Soon be flooding with episodes
 
-[yoyo](https://www.youtube.com/watch?v=Fs6eUVHqBS4)
+Episode 1 - Jaspal's Electrical Revenge[Link](https://drive.google.com/file/d/1rdFDXY8iyhpFnTAt6mg6nieRZx0YB_N4/view)
 
-Everyone needs a website to express themselves so i made free website templates. All you need to do is download them and customize them according to your need.
+Episode 2-  A Haunted Filmmaker[Link](https://drive.google.com/open?id=1A6SA1LxKEzyu11ivtP4ySC6KjLvZaDRh)
+
 
 Have Fun. 😄
 
 
-# Add your template
-
-If you have a template you want to be on this repo create a PR
+# Suggest changes Cadet Z
 
