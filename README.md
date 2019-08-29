@@ -1,5 +1,5 @@
 driveId: 1_Rp1rGYku8C_2LiH-dn1dWSaApD5rI_P
-<img src="https://hocojecbe.tk/photo/she-koi-hai-full-hd-drama.jpg"/>
+<img src="https://github.com/tahirdon/skh/blob/master/inc/abc.jpg"/>
 
 # Fimbo ![GitHub stars](https://img.shields.io/github/stars/imfunniee/fimbo.svg?style=social) ![GitHub repo size](https://img.shields.io/github/repo-size/imfunniee/fimbo.svg?style=popout-square) ![GitHub](https://img.shields.io/github/license/imfunniee/fimbo.svg?style=popout-square) 
 
