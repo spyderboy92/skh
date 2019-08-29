@@ -4,6 +4,7 @@
 # SSSHHHH KOI HAI !
 
 # Suggest changes Cadet Z
+## First plan flopped, trying with second plan
 
 Episode 1 - Jaspal's Electrical Revenge [Link](https://drive.google.com/file/d/1rdFDXY8iyhpFnTAt6mg6nieRZx0YB_N4/view)
 
@@ -28,6 +29,6 @@ Episode 10 - Vengeful Ghost             [Link](https://drive.google.com/open?id=
 Have Fun. More episodes soon. 😄
 
 
-### Soon flooding more episodes
+# Soon flooding more episodes
 
 
