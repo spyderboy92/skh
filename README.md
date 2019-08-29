@@ -3,8 +3,7 @@
 
 # SSSHHHH KOI HAI !
 
-
-### Soon be flooding with episodes
+# Suggest changes Cadet Z
 
 Episode 1 - Jaspal's Electrical Revenge [Link](https://drive.google.com/file/d/1rdFDXY8iyhpFnTAt6mg6nieRZx0YB_N4/view)
 
@@ -12,7 +11,7 @@ Episode 2-  A Haunted Filmmaker         [Link](https://drive.google.com/open?id=
 
 Episode 3 - Wolf Hunt!                  [Link](https://drive.google.com/open?id=1BkxwT5njU9uAhRF4bT_XJO2BZlA79vyK)
 
-Episode 4 - The Tantrik's Curse         [Link](https://drive.google.com/)pen?id=1GYAMp07SRTfKGJNhz5G63LXBzGIQCvRP)
+Episode 4 - The Tantrik's Curse         [Link](https://drive.google.com/open?id=1GYAMp07SRTfKGJNhz5G63LXBzGIQCvRP)
 
 Episode 5 - The Living Doll             [Link](https://drive.google.com/open?id=10M62awKoPpSoIaPdPHA-YyACVlc07aVd)
 
@@ -29,5 +28,6 @@ Episode 10 - Vengeful Ghost             [Link](https://drive.google.com/open?id=
 Have Fun. More episodes soon. 😄
 
 
-# Suggest changes Cadet Z
+### Soon flooding more episodes
+
 
